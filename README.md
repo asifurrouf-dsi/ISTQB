@@ -1,0 +1,2 @@
+# ISTQB-
+ISTQB® Detail Notes
